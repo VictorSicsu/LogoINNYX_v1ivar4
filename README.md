@@ -1,1 +1,0 @@
-# LogoINNYX_v1ivar4
